@@ -1,1 +1,1 @@
-![](https://github.com/qVoste/gif/blob/main/gg.gif)
+![](https://github.com/qVoste/gif/blob/main/tynka.gif)
